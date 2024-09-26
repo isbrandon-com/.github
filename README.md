@@ -1,4 +1,4 @@
-# isbrandon
+# isbrandon.com
 
 **Fueled by curiosity, isbrandon is a community of passionate knowledge seekers.**
 
